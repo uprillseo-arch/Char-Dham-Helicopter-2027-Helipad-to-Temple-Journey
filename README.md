@@ -1,0 +1,2 @@
+# Char-Dham-Helicopter-2027-Helipad-to-Temple-Journey
+Explore what happens after a helicopter lands during the Char Dham Yatra 2027. This guide explains the difference between a helipad arrival and temple access, possible ground transfers, walking requirements, local coordination and darshan planning. Check these practical details with Avya Aviation before choosing a helicopter pilgrimage package now.
